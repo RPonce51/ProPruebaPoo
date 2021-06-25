@@ -1,5 +1,5 @@
 # ProPruebaPoo
 ## titulo
 jnsjnsknwke
-![Encuesta4](https://user-images.githubusercontent.com/62726310/123354554-26693c00-d521-11eb-983e-785b9637305e.png)
+![image](https://user-images.githubusercontent.com/62726310/123354624-48fb5500-d521-11eb-8043-11b4a8f8eaee.png)
 
